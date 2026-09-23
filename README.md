@@ -6,14 +6,12 @@
 
 <style></style>
 
-**“empresa internacional pero hecho en mi Celeron”**
+**“empresa internacional”**
 
-estilo propio.
+![Uploading image.png…]()
 
-Primero:
+![Uploading image.png…]()
 
- 
- 
  **desde cero**, elegante, moderno, tipo marca internacional.
 
 ---
