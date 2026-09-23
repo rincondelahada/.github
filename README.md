@@ -4,13 +4,12 @@
 
 #  Fairy's Burguer Corner
 
-<style></style>
+
 
 **“empresa internacional”**
 
 ![Uploading image.png…]()
 
-![Uploading image.png…]()
 
  **desde cero**, elegante, moderno, tipo marca internacional.
 
