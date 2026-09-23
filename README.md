@@ -8,8 +8,9 @@
 
 **“empresa internacional”**
 
-![Uploading image.png…]()
 
+
+<img src="https://elrincondelahada.vercel.app/img/ChatGPT Image 13 sept 2026, 06_22_17 p.m..jpg" width="100%"/>
 
  **desde cero**, elegante, moderno, tipo marca internacional.
 
